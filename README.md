@@ -48,9 +48,9 @@ The Student Management System was developed by the talented team at ArtOfCoding.
 
 If you are interested in purchasing the Student Management System, please contact us:
 
-- WhatsApp/Call: 01093307397
-- WhatsApp/Call: 01288513225
-- WhatsApp: 01032443829
-- Email: sayed.work223@gmail.com
+- WhatsApp/Call: 01274818743
+- WhatsApp/Call: 01274818743
+- WhatsApp: 01274818743
+- Email: martinnadyy@gmail.com
 
 We appreciate your interest and support!
